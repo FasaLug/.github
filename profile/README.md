@@ -31,4 +31,4 @@ If you have any questions , don't hesitate to reach out to us at our **[Telegram
 
 We look forward to collaborating with you! 🌈
 
-***Check out our [website](FasaLUG.ir) for more information about our organization, upcoming events, and how to get involved. 🌐***
+***Check out our [website](FasaLUG.ir) for more information about our organization, upcoming events, and how to get involved.*** 🌐
