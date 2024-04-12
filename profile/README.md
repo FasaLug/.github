@@ -1,8 +1,6 @@
-## Hi there 👋
+## Fasa LUG (Linux User Group) 🐧
 
-# Fasa LUG (Linux User Group) 🐧
-
-Welcome to the Fasa LUG GitHub repository! 🎉
+Welcome to the Fasa LUG Organization
 
 ## About Us ℹ️
 
